@@ -1,2 +1,3 @@
 # hello-world
 just get this over with 
+Hi my name is Ebony Dark’ness Dementia Raven Way and I have long ebony black hair (that’s how I got my name) with purple streaks and red tips that reaches my mid-back and icy blue eyes like limpid tears and a lot of people tell me I look like Amy Lee (AN: if u don’t know who she is get da hell out of here!). I’m not related to Gerard Way but I wish I was because he’s a major fucking hottie. I’m a vampire but my teeth...
